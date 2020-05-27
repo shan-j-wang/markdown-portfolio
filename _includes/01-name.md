@@ -1,4 +1,4 @@
-# Univerisity of Alber
+# Univerisity of Alberta
 ## MD Class of 2022
-### Shan 
+### Shan Jin Wang
 
